@@ -4,3 +4,5 @@ Martine never wanted to be an adventurer. He desperately hoped to join the prest
 
 **After the Incident:**
 He's racked with guilt and anger. Some of it directed to me, but most of it towards himself because he's the whole reason Pluton joined the Adventurer's Guild. He knows logically that I did what I thought was right, and he probably would have done the same thing. But he can't get the image of me firing an explosive spell right by his best friend and then seeing him vaporize, out of his head.
+
+![[Martine.png]]

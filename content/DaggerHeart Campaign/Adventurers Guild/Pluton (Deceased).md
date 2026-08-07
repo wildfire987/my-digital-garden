@@ -7,3 +7,5 @@ He was the one who accidentally set off the trap in the dungeon. He tried to hol
 
 **After the Incident:**
 Deceased
+
+![[Pluton.png]]

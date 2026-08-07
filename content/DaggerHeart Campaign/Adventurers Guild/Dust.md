@@ -4,3 +4,5 @@ They are *immortal*, and centuries old. Very little is known of their back story
 
 After the Incident:
 No remains of him were found, physical, magical, or otherwise. He's not been seen since.
+
+![[Dust.png|365]]

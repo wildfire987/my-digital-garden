@@ -5,3 +5,7 @@
 - Doesn't need to be in water, but definitely prefers it
 - Doesn't talk, but just makes squeaks and chomp sounds with it's beak
 - Is very intelligent and understand language and instructions. 
+
+![[Octopus Friend.png|284]] ![[Octopus_Companion.png|356]]
+
+![[Octopus.png|292]]

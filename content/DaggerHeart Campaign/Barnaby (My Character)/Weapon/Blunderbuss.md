@@ -4,3 +4,7 @@ An invention I created that is my primary weapon
 	- Stink bombs
 	- poison bullets
 	- net gun bullets
+
+![[Blunderbuss 1.png|390]]
+
+![[Blunderbuss 2.png|386]]

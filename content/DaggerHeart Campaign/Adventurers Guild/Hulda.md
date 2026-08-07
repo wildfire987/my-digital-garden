@@ -4,3 +4,5 @@ She is a hyper-theatrical arch-wizard obsessed with "Explosion" magic, stubbornl
 
 **After the Incident:**
 She blames me for not trusting in her to be able to blow open an escape tunnel. If I had just waited and believed in her she could have saved everyone and Pluton didn't have to die.
+
+![[Hulda.png]]

@@ -2,3 +2,5 @@ They are a loudmouth Bard. I cannot stand them. They know how much I like Soleil
 
 **After the Incident:**
 She's sticking with her sister. She doesn't really give a damn about what happened to Pluton. "It's part of the job, if you didn't want any danger go do something else. Shit happens."
+
+![[Lune.png]]
