@@ -1,0 +1,10 @@
+- Half height creature
+- Approximately 40 years old, he's been around for a while, but SImiah can live for up to 100 years, so he's pretty "mid-life"
+- Smokes a big long pipe to relax
+- Imagine a Victorian era scientist or Darwin, but as a fantasy lemur robot character
+- Part SImiah
+	- Lemur type of monkey (red ruffed lemur)
+	- Maybe still has ringed tails? (Do the rings symbolize anything?)
+- Part Clank
+	- Has some of their body as robotic, or maybe powered by some type of machine. (magic, steam powered, etc)
+	- I think maybe only 1 or 2 limbs. Maybe a let and a arm, or leg and 

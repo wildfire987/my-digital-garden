@@ -1,0 +1,1 @@
+Twin human females ([[Soleill]] and [[Lune]]) that are impossible to tell the difference between. Physical changes to one of the twins happens to the other twin so that they always look exactly identical. Until they open their mouth.

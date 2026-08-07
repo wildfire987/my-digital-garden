@@ -1,0 +1,3 @@
+- I kind of like the idea that I was previously actually a normal monkey and normal monkey sized. I was used as some type of animal testing and during this testing is how I got my robotic tail and leg and my intelligence.
+- Then when I shrank down and crashed to the surface it turned into a Ma/Pa Kent situation, where they raised me as one of their own.
+- Maybe time is experienced differently for the regular sized world and the miniature world we are going to role play in? Like maybe it just seems like humans have been gone for a long time, but in actuality it's only been a few weeks, months, years? Maybe that's one way to say how I turned from big to small even though there are currently no humans around?

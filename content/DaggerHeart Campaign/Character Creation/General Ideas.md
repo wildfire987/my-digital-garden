@@ -1,0 +1,3 @@
+- Half human size
+- Charles Darwin in the Cosmere, but a Lemur
+- Smokes a big Gandalf pipe????

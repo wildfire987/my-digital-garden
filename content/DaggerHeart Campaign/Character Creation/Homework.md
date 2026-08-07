@@ -1,0 +1,3 @@
+ ------------------------------------------------------
+- I need to have a failure or regret
+- I need an accomplishment big or small
